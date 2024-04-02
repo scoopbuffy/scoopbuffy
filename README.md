@@ -6,4 +6,4 @@
 
  ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
 
-![file:///C:/Users/jaedy/Downloads/Untitled131_20240402111637.png]
+![https://mail.google.com/mail/u/0?ui=2&ik=d132a03bbf&attid=0.1&permmsgid=msg-a:r-1519246667935501067&th=18e9fad4bb170cab&view=att&disp=safe&realattid=f_luilskt90]
