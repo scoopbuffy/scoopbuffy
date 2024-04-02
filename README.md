@@ -5,4 +5,4 @@
  im a minor. (so no werid comments), if we are friends and your making werid jokes its fine as long as its not as sexual.
 
  ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
-![alt text][(https://ibb.co/7JD6BHm)]
+(i hate git hub)
