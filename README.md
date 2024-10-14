@@ -1,4 +1,4 @@
-[alt text](https://64.media.tumblr.com/1100c9c0c86e6576e05b4cc3a06edb92/463f51ade4af45aa-3e/s1280x1920/302db209ec46a42d4fd00e55189de2416bdb3086.pnj)
+[alt text] (https://64.media.tumblr.com/1100c9c0c86e6576e05b4cc3a06edb92/463f51ade4af45aa-3e/s1280x1920/302db209ec46a42d4fd00e55189de2416bdb3086.pnj)
 
  ☆ i go by Cal,Sharkie,Moth or Buffy. (please use my pef names) ┆彡
 
