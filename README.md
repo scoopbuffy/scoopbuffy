@@ -10,7 +10,7 @@
 
  ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
  
- ☆(i hate git hub)
+ ☆(C+H is fine! im afk half of time so feel free to send a whisper.)
 
 ︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
