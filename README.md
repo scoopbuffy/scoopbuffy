@@ -14,4 +14,4 @@
 ︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
 
-![alt text](https://64.media.tumblr.com/8081b2d5081a970df5e91a0d748b4a88/b69c01f137587a87-6f/s400x600/9d7e155339276d05718e56bcd956947ea9bfff6c.pnj)
+![alt text]([https://64.media.tumblr.com/8081b2d5081a970df5e91a0d748b4a88/b69c01f137587a87-6f/s400x600/9d7e155339276d05718e56bcd956947ea9bfff6c.pnj](https://64.media.tumblr.com/db646ec198ab43a6c23028835d24ec0b/ffef7e8029b7971b-e2/s400x600/527bfc5557f204f55d86ced1d98a661db8861b86.gifv))
