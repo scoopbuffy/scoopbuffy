@@ -4,15 +4,15 @@
 
 ![alt text](https://media.discordapp.net/attachments/1052873893028843574/1295521698606743676/Untitled183_20241014175924.png?ex=670f9cda&is=670e4b5a&hm=b9b6892d822b0a018dcad636305f73d9f556bc114567491632e2c0607f9034b6&=&format=webp&quality=lossless&width=350&height=350)
  
-☆ i go by Cal,Sharkie,Moth or Buffy. (please use my pef names) ┆彡
+☆ i go by Cal,Sharkie,Moth or Buffy. (please use my pef names) ┆彡 ![alt text](https://i.ibb.co/G7gs6BM/IMG-5466.webp)
 
- ☆ little about me ↴ ┆彡 ![alt text](https://i.ibb.co/pdS7pCR/IMG-5483.gif)
+ ☆ little about me ↴ ┆彡  ![alt text](https://i.ibb.co/pdS7pCR/IMG-5483.gif)
 
- ☆im a minor. (so no werid comments), if we are friends and your making werid jokes its fine as long as its not as sexual.
+ ☆im a minor. (so no werid comments), if we are friends and your making werid jokes its fine as long as its not as sexual. 
 
- ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
+ ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․ ![alt text](https://i.ibb.co/DCXKrgy/IMG-5482.gif)
  
- ☆ C+H is fine! im afk half of time so feel free to send a whisper.
+ ☆ C+H is fine! im afk half of time so feel free to send a whisper. ![alt text](https://i.ibb.co/Qk4WQhw/IMG-5463.gif)
 
 ︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
