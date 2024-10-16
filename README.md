@@ -17,3 +17,6 @@
 ︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
 ![alt text](https://64.media.tumblr.com/db646ec198ab43a6c23028835d24ec0b/ffef7e8029b7971b-e2/s400x600/527bfc5557f204f55d86ced1d98a661db8861b86.gifv)
+
+
+![alt text](https://64.media.tumblr.com/1100c9c0c86e6576e05b4cc3a06edb92/463f51ade4af45aa-3e/s1280x1920/302db209ec46a42d4fd00e55189de2416bdb3086.pnj)
