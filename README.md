@@ -12,7 +12,7 @@
 
  ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․ ![alt text](https://i.ibb.co/DCXKrgy/IMG-5482.gif)
  
- ☆ C+H is fine! im afk half of time so feel free to send a whisper. ![alt text](https://i.ibb.co/Qk4WQhw/IMG-5463.gif)
+ ☆ C+H is fine! im afk half of time so feel free to send a whisper. ![alt text](https://i.ibb.co/sFvT7nf/IMG-5461.gif)
 
 ︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
